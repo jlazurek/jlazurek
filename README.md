@@ -16,7 +16,7 @@
 
  💬 Ask me about **Digital marketing, content creatign, leads, sales... or anything [here](https://github.com/jlazurek/jlazurek/issues)**
 
- ⚡ Fun fact **Game of Thrones Night's Watch cloaks are made from Ikea rugs**
+ ⚡ Fun fact **Did you know that the first banner ad on the internet was displayed in 1994? It was part of an advertising campaign for AT&T on HotWired.com, which is considered the first commercial website. The banner ad had a click-through rate (CTR) of 44%, which means that nearly half of the people who saw the ad clicked on it. This historic moment marked the beginning of digital advertising as we know it today.**
  
  </div>
  
